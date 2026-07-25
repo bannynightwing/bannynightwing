@@ -9,4 +9,6 @@
   <img src="https://i.postimg.cc/9fsBzsLC/a9ffd794c57f03da14a3e75815c83618.jpg" width="100%">
 </p>
 
-if i followed ur account just know you really have beautiful ponies (to me) 🫰🥺 or you're a cool person lol
+<p align="center">
+  <img src="https://i.postimg.cc/8cbY2Xcj/c81693cdc23fe85a6f1344f74e306a4c.jpg" width="100%">
+</p>
